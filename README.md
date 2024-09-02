@@ -78,3 +78,9 @@ Follow us on:
 - [GitHub](https://github.com/urz-anil)
 
 © 2024 ANiL's Software Development Solutions
+
+![Screenshot (347)](https://github.com/user-attachments/assets/4d6a739d-ff7c-4ba9-8eb4-fc5460968a08)
+
+![Screenshot (348)](https://github.com/user-attachments/assets/ee10d0fa-0fa4-4bae-bd8f-db1f6be53b84)
+
+![Screenshot (349)](https://github.com/user-attachments/assets/63be9fdd-6ba1-453f-89c6-a9e611c420dd)
